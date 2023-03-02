@@ -1,0 +1,1 @@
+This is a flop. It was supposed to predict the proces of gold in the short term.
